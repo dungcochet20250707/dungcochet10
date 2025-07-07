@@ -19,4 +19,4 @@
 
 要获得最佳观看体验，建议选择口碑较好的资源站点，注意使用隐私浏览模式，避免落入跳转或病毒站点。选对平台，便可轻松、安全、稳定地观看你最想要的日本AV内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dungcochet20250707/dungcochet10 ）</span>
